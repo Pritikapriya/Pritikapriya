@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **pritikapriya172@gmail.com**
 
-- 📄 Know about my experiences [Pritika_Resume.pdf](Pritika_Resume.pdf)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
